@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @dana-redena
+- 👀 I’m interested in social impact, strategy, solutions, + productivity, plants, podcasts
+- 🌱 I’m currently learning social impact: EdTech and Sustainability, data platforms and systems
+- 💞️ I’m looking to collaborate on tech x impact
+- 📫 How to reach me at my personal Github & Twitter @danaredena
